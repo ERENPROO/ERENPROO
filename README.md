@@ -1,2 +1,3 @@
-Student, translator, gamer, and whole lot more
+Student, translator, gamer, pixel artist and whole lot more
+
 Discord: gamerchara
