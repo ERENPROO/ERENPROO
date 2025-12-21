@@ -1,3 +1,3 @@
 Student, translator, gamer, pixel artist and whole lot more
 
-Discord: gamerchara
+Discord: charredmist
