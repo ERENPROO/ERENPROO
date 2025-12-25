@@ -1,9 +1,10 @@
 Student, translator, gamer, pixel artist and whole lot more
 
 Discord: charredmist
----------------------------
+---------------------
+(wont be available most of the time)
 Eren's distrohopping list:
-
+---------------------
 Current: Not using Linux for now.
 
 Failed distros:
