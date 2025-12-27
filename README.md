@@ -6,7 +6,7 @@ Discord: charredmist
 
 Misty's distrohopping list:
 ---------------------
-Current: Not using Linux for now.
+Current: Pop!_OS
 
 Failed distros:
 
